@@ -10,4 +10,4 @@
 
 这些日本成人影片平台通过多个分类，如按类型、演员或剧情来整理资源，让用户更轻松地找到自己感兴趣的影片。每部影片都配有详细资料，包括演员阵容、影片时长及高清晰度等。平台支持高清播放，并根据网络环境自动优化画质，确保无卡顿流畅播放。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/enha20250708/enha7 ）</span>
